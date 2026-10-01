@@ -1,16 +1,16 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**fromagechips/fromagechips** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](https://komarev.com/ghpvc/?username=fromagechips&color=grey) 
 
-Here are some ideas to get you started:
+</div>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">  hello
+<p align="center">  
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/5e37f4ce-000a-4c96-a7d5-877f15f774c8"/>
+</p>
+
+<p align="center">  i like minecraft and stardew vlaly okay
+
+
