@@ -18,6 +18,8 @@
   
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=schoolbell&pause=500&color=383D50&multiline=true&width=435&lines=%22+I+believe+that+good+things;...Only+come+to+those+who+wait!%22" alt="Typing SVG" /></a> <div align="center"> 
 
+![](https://komarev.com/ghpvc/?username=fromagechips&label=wonderland+visitors+👁️‍🗨️&color=red)
+
 <div align="center"> 
 
 <img width="800" height="60" alt="tumb" src="https://github.com/user-attachments/assets/de3e1559-5fd2-43bf-8381-1dadf7fa04cf" />
