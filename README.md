@@ -1,29 +1,37 @@
+‎ <p align="center">
+<img src="https://github.com/user-attachments/assets/f3e2271b-819a-4b31-95ee-25f21becadf9" width="600"  align="right">
+<img src="https://github.com/user-attachments/assets/1fcc3811-9829-4861-9c8a-18c36efeb4d4#left" width="400" align="left">
+</br>
+ <img src="https://github.com/user-attachments/assets/b4f674a1-4b79-4763-80ae-099da61ceff4" height="200" align="center">  <img src="https://github.com/user-attachments/assets/0334e95c-50ce-40d3-89c5-9d0fa7d7359e" height="54"  align="center">  <img src="https://github.com/user-attachments/assets/d7cad719-9581-4887-a1c0-0806cb06ef0d" height="900"  align="center">
 
 
-<div align="center"> 
+<div align="center">
+  <details>
+    <summary>BYI</summary>
+    <br> 
+    I'm very awkward around people I don't really match the vibe of.
+   
+  ...
+    
 
-<img width="800" height="60" alt="tumb" src="https://github.com/user-attachments/assets/09f10ce7-24d4-4f46-8d5e-30cbb896cd77" />
+dry texter only when tired
+    
 
-<div align="center"> 
+I don't really fuck with roblox players/fans of roblox games but you can interact 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=schoolbell&pause=500&color=FF3232&multiline=true&width=435&lines=%22+Do+you+believe+in+love+at+first+sight?--;...Do+you+believe+in+fate?%22" alt="Typing SVG" /></a> <div align="center"> 
+I dislike mean people, if you ever come up to me to try and spark up a conversation, I 100% will try to hold it. Unless I'm afk, that is.
 
+I use "oh!" as genuine surprise, not judging someone.
 
+</div>
 
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/0abf2ad6-bf1b-4c5d-98f1-51ef2591e233"/>
-</p>
+<div align="center">
+  <details>
+    <summary>DNI</summary>
+    <br>
+    no dni i dont have time for this i have bills to pay and a cat to feed 
+  </div>
 
-<div align="center"> 
-  
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=schoolbell&pause=500&color=383D50&multiline=true&width=435&lines=%22+I+believe+that+good+things;...Only+come+to+those+who+wait!%22" alt="Typing SVG" /></a> <div align="center"> 
-
-![](https://komarev.com/ghpvc/?username=fromagechips&label=wonderland+visitors+👁️‍🗨️&color=red)
-
-<div align="center"> 
-
-<img width="800" height="60" alt="tumb" src="https://github.com/user-attachments/assets/de3e1559-5fd2-43bf-8381-1dadf7fa04cf" />
-
-
-
-
+  <div align="center">
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playpen+Sans&duration=4000&pause=500&color=FFE5A8C2&width=435&lines=you+ever+feel+like...;no+matter+what+you+do,+you're+gonna+fail?" alt="Typing SVG" /></a>
+</div>
