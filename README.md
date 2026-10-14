@@ -8,7 +8,7 @@
   <details>
     <summary>BYI</summary>
     <br> 
-    I'm very awkward around people I don't really match the vibe of.
+    I'm awkward AS HELL and I probably won't come up to u first pls 
    
   ...
     
