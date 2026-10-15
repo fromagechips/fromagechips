@@ -45,9 +45,8 @@ im cool and all
       <th>
             <img src="https://github.com/user-attachments/assets/c5334e72-5859-4e28-9a35-f75409d2766e" width="60" height="~" alt="STAGE I">
 
-        No dni I have bills 
-        to
-        pay
+        No dni I have bills   .
+        to pay
               
 </br>
 </th>
