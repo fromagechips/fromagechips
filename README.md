@@ -20,8 +20,8 @@ im cool and all
 
         I'm often really awkward
 
-        I don't really fuck with roblox players or just fans of roblox games in general 
-        but u can int I'm not gonna be a dick abt it
+        I don't really fuck with roblox players or just fans of roblox games in general,
+        especially forsaken.
 
         Awful sense of humor
 
