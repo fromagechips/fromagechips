@@ -20,14 +20,12 @@ im cool and all
 
         I'm often really awkward
 
-        I don't really fuck with roblox players or just fans of roblox games in general,
-        especially forsaken.
+        I don't really fuck with fandoms dominated by kids (object shows, roblox, etc.) I'm sorry but -> (MOST) <- of yall are
+        MAD annoying
 
         Awful sense of humor
 
-        I hate mean mfs I will kill all of u it's 
-        a social game stop being a dick when
-        people come up to u to talk
+        I actually use the pt status thing so if its away or busy im probably afk and wont reply
               
 </br>
 </th>
