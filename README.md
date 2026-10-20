@@ -20,7 +20,7 @@ im cool and all
 
         I'm often really awkward
 
-        I don't really fuck with fandoms dominated by kids (object shows, roblox, etc.) I'm sorry but -> (MOST) <- of yall are
+        I don't really fuck with fandoms dominated by minors (object shows, roblox, etc.) I'm sorry but -> (MOST) <- of yall are
         MAD annoying
 
         Awful sense of humor
