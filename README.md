@@ -26,6 +26,8 @@ im cool and all
         Awful sense of humor
 
         I actually use the pt status thing so if its away or busy im probably afk and wont reply
+
+        if ure sensitive u might not want to int with me
               
 </br>
 </th>
