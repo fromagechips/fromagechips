@@ -1,88 +1,20 @@
+
 <br>
 
-<img src="https://github.com/user-attachments/assets/18d172e6-c7d4-451a-a93f-04757555dde4" width="270" align="left">
+<img src="https://github.com/user-attachments/assets/91fe33f7-7c9d-4cb1-9142-e61c0d7aa213" width="270" align="left">
 
-Hi i'll make this look better once I figure out how colors work on this bs　　 
+</br>
 
-im cool and all
+<br>
+
+
 
 
 
  ![](https://komarev.com/ghpvc/?username=fromagechips&color=dbdbdb&style=flat-square&label=popularity)
 
-<details>
-  <summary>BYI</summary>
-
- <table border="0" align="left" style="margin-bottom 20" style="margin-right 2">
-    <tr align="left"></tr>
-      <th>
-            <img src="https://github.com/user-attachments/assets/99b04c17-9921-42f3-b044-5c258177d327" width="60" height="~" alt="STAGE I">
-
-        I'm often really awkward
-
-        I don't really fuck with fandoms dominated by minors (object shows, roblox, etc.) I'm sorry but -> (MOST) <- of yall are
-        MAD annoying
-
-        Awful sense of humor
-
-        I actually use the pt status thing so if its away or busy im probably afk and wont reply
-
-        if ure sensitive u might not want to int with me
-              
-</br>
-</th>
-</table>
-
-  
-</details>
-
-
-<details>
-  <summary>DNI</summary>
-
- <table border="0" align="left" style="margin-bottom 20" style="margin-right 2">
-    <tr align="left"></tr>
-      <th>
-            <img src="https://github.com/user-attachments/assets/c5334e72-5859-4e28-9a35-f75409d2766e" width="60" height="~" alt="STAGE I">
-
-        No dni I have bills   .
-        to pay
-              
-</br>
-</th>
-</table>
-
-  
-</details>
-
-
-<details>
-  <summary>LINKS</summary>
-
- <table border="0" align="left" style="margin-bottom 20" style="margin-right 2">
-    <tr align="left"></tr>
-      <th>
-            <img src="https://github.com/user-attachments/assets/654be231-8545-4116-ad2c-b1411040a5fe" width="60" height="~" alt="STAGE I">
-
-        
-  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [strawpage](https://whenthefromage.straw.page) , </br>
-   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  [atabook](https://fromagechips.atabook.org) , </br>
-
-              
-</br>
-</th>
-</table>
-
-  
-</details>
-
-
-  <div align="center">
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playpen+Sans&duration=4000&pause=500&color=FFFFFF&width=435&lines=you+ever+feel+like...;no+matter+what+you+do,+you're+gonna+fail?" alt="Typing SVG" /></a>
-</div>
-
-
-
+‎ ‎ ‎ [strawpage](https://whenthefromage.straw.page) , </br>
+   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ [atabook](https://fromagechips.atabook.org) , </br>
 
 
 
