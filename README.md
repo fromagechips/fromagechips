@@ -10,7 +10,6 @@
 follow me because im cool
 
 
-doublestinger enjoyer
 
 
  ![](https://komarev.com/ghpvc/?username=fromagechips&color=dbdbdb&style=flat-square&label=popularity)
