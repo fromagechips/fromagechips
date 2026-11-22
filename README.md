@@ -1,14 +1,13 @@
 
 <br>
 
-<img src="https://github.com/user-attachments/assets/4d93a892-fed2-4f2c-b269-e2d08b8cb699" width="270" align="left">
+<img src="https://github.com/user-attachments/assets/01bab345-72ca-4ef2-9f96-f622f96b2d09" width="270" align="left">
 
 </br>
 
 <br>
 
 follow me because im cool
-
 
 
 
